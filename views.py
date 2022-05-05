@@ -1,1 +1,1 @@
-#taktyczny komentar
+#co to jest
