@@ -1,1 +1,1 @@
-#dobra teraz
+#dobra teraz serio
